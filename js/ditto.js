@@ -68,9 +68,9 @@ function init_sidebar_section() {
     $.get(ditto.sidebar_file, function (data) {
         $(ditto.sidebar_id).html(marked(data));
 
-        if (ditto.search_bar) {
-          //  init_searchbar();
-        }
+        // if (ditto.search_bar) {
+        //   init_searchbar();
+        // }
 
         // 初始化内容数组
         var menuOL = $(ditto.sidebar_id + ' ol');

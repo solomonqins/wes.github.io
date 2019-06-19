@@ -270,8 +270,8 @@ ES6 允许块级作用域的任意嵌套。
 
 ```javascript
 {{{{
-  {let insane = 'Hello World'};
-  console.log(insane); 
+  let insane = 'Hello World';
+  {let insane = 'Hello World'}
 }}}};
 ```
 

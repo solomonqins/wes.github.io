@@ -342,14 +342,14 @@ function router() {
       window.disqus_title = $(ditto.content_id + " h1").text();
       window.disqus_url = 'http://wes.joshuadev.xyz/' + (location.hash ? location.hash.replace("#", "") : 'README');
 
-      // http://docs.disqus.com/developers/universal/
-      // (function() {
-      //   var dsq = document.createElement('script');
-      //   dsq.type = 'text/javascript';
-      //   dsq.async = true;
-      //   dsq.src = 'http://' + window.disqus_shortname + '.disqus.com/embed.js';
-      //   (document.getElementsByTagName('head')[0] || document.getElementsByTagName('body')[0]).appendChild(dsq);
-      // })();
+      http://docs.disqus.com/developers/universal/
+      (function() {
+        var dsq = document.createElement('script');
+        dsq.type = 'text/javascript';
+        dsq.async = true;
+        dsq.src = 'http://' + window.disqus_shortname + '.disqus.com/embed.js';
+        (document.getElementsByClassName('o') || document.getElementsByClassName('o')).appendChild(dsq);
+      })();
     })();
 
     var perc = ditto.save_progress ? store.get('page-progress') || 0 : 0;

@@ -68,9 +68,9 @@ function init_sidebar_section() {
     $.get(ditto.sidebar_file, function (data) {
         $(ditto.sidebar_id).html(marked(data));
 
-        // if (ditto.search_bar) {
-        //   init_searchbar();
-        // }
+        if (ditto.search_bar) {
+          init_searchbar();
+        }
 
         // 初始化内容数组
         var menuOL = $(ditto.sidebar_id + ' ol');
@@ -100,16 +100,16 @@ function init_sidebar_section() {
     });
 }
 
-// function init_searchbar() {
-//   var search = '<form class="searchBox" onSubmit="return searchbar_listener()">' +
-//     '<input name="search" type="search">' +
-//     '<input type="image" class="searchButton" src="images/magnifier.jpg" alt="Search" />' +
-// //    '<a class="searchLink" href="#" target="_blank"><img src="images/magnifier.jpg"></a>' +
-//     '</form>';
-//   $(ditto.sidebar_id).find('h2').first().before($(search));
-//   // $('input.searchButton').click(searchbar_listener);
-//   // $('input[name=search]').keydown(searchbar_listener);
-// }
+function init_searchbar() {
+  // var search = '<form class="searchBox" onSubmit="return searchbar_listener()">' +
+  //   '<input name="search" type="search">' +
+  //   '<input type="image" class="searchButton" src="images/magnifier.jpg" alt="Search" />' +
+  //   '<a class="searchLink" href="#" target="_blank"><img src="images/magnifier.jpg"></a>' +
+  //   '</form>';
+  // $(ditto.sidebar_id).find('h2').first().before($(search));
+  // $('input.searchButton').click(searchbar_listener);
+  // $('input[name=search]').keydown(searchbar_listener);
+}
 
 // function searchbar_listener(event) {
 //     // event.preventDefault();

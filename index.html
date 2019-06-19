@@ -3,13 +3,35 @@
 <head>
   <meta charset="utf-8">
   <meta name="viewport" content="width=device-width, initial-scale=1">
+  <link rel="stylesheet" href="app/bower_components/normalize-css/normalize.css">
+  <link rel="stylesheet" href="css/app.css">
   <title>西敏小要理问答</title>
   <link rel="shortcut icon" href="/favicon.ico" type="image/x-icon">
   <link rel="icon" href="/favicon.ico" type="image/x-icon">
+  <script src="js/jquery-1.11.0.min.js"></script>
+  <script src="js/jquery-ui.min.js"></script>
+  <script src="js/marked.js"></script>
+  <script src="js/store.js"></script>
+  <script src="js/ditto.js"></script>
+  <script src="js/prism.js"></script>
 </head>
 <body>
-  <div>
-    <p>《西敏小要理问答》是一本基督教教义书籍。</p>
-  </div>
+  <!-- essential -->
+  <div id="sidebar"></div>
+  <div id="content"></div>
+  <!-- optional -->
+  <div id="back_to_top">back to top</div>
+  <!-- <div id="edit">edit</div> -->
+  <div id="loading">加载中 ...</div>
+  <div id="error">Oops! ... 读取文件失败!</div>
+  <div id="flip"><div id="pageup">上一问</div><div id="pagedown">下一问</div></div>
+  <div class="progress-indicator-2"></div>
+
+  <script src="config.js"></script>
+  <noscript>
+    <p>《西敏小要理问答》是一本极为精简的基督教信仰宣言。</p>
+    <p>十七世纪在伦敦“西敏会议”所制订的〈西敏小要理问答〉，目的是要教育信徒全家，学习救恩要道。儿童从小学习其精简扼要的内容，背诵遵行、一生受益，在基督教英文世界中家喻户晓，极受欢迎。是一本极为精简的基督教信仰宣言。在107个问答中，已概括了有关上帝的全面真理，读者一旦记住了，就永远不会忘记。</p>
+    <p>求主恩待华人教会，全面使用《小要理问答》，无论家庭团契、查经小组、长执训练等，皆竞相研读背诵；信徒（无论小羊或老羊）人手一册，反覆温习。若能进一步查考其“经文根据”，则更能“恩上加恩，力上加力，乐上加乐，荣上加荣。”如此，才有可能落实“在至圣的真道上造就自己，为从前一次交付圣徒的真道竭力争辩”。</p>
+  </noscript>
 </body>
 </html>

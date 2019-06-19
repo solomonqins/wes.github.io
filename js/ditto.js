@@ -96,7 +96,7 @@ function init_sidebar_section() {
             location.hash = menu[i + 1];
         });
     }, "text").fail(function() {
-        alert("Opps! can't find the sidebar file to display!");
+        alert("亲! 已经没有下一问了!");
     });
 }
 

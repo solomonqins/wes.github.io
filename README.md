@@ -1,8 +1,8 @@
 # 西敏小要理问答
-
 《西敏小要理问答》是一本极为精简的基督教信仰宣言。
 
 [![cover](images/wes_md.jpg)](images/wes_md.jpg.jpg)
+
 
 ## 简要介绍:
 

@@ -69,7 +69,7 @@ function init_sidebar_section() {
         $(ditto.sidebar_id).html(marked(data));
 
         if (ditto.search_bar) {
-           init_searchbar();
+          //  init_searchbar();
         }
 
         // 初始化内容数组

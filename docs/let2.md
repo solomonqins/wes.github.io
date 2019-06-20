@@ -1,6 +1,5 @@
 ###1问：人的主要目的是什么？
 What is the chief end of man?
-----------------------------------------------------
 答：人的主要目的是，荣耀神，以祂为乐，直到永远。
 The chief end of man is to glorify God,and to enjoy Him for ever.
 
@@ -27,7 +26,7 @@ The chief end of man is to glorify God,and to enjoy Him for ever.
 11、何谓“以神为乐”？如何“以神为乐”？
 12、当我们“荣耀神、以祂为乐”时，带来什么结果？（赛62:5；番3:17）
 
-****************************************************
+
 
 学习心得：
 
@@ -36,7 +35,6 @@ The chief end of man is to glorify God,and to enjoy Him for ever.
 
 ###2问：神已经赐什么准则，指教我们如何荣耀祂，以祂为乐？
 What rule has God given to direct us how we may glorify and enjoy Him?
-----------------------------------------------------------------------------------
 答：神的道记载于新旧约圣经，就是唯一的准则，指教我们如何荣耀祂，以祂为乐。
 The Word of God,which is contained in the Scriptures of the Old and New Testaments,is the only rule to direct us how we may glorify and enjoy Him.
 
@@ -59,7 +57,7 @@ The Word of God,which is contained in the Scriptures of the Old and New Testamen
 9、既然圣经能叫属神的人得以完全，预备行各样的善事，那么我们还需不需要“信经信条”与“要理问答”呢？
 10、如果你的生命没有或较少“荣耀神，以祂为乐”，原因何在？如何改进？
 
-****************************************************
+
 
 学习心得：
 
@@ -69,7 +67,6 @@ The Word of God,which is contained in the Scriptures of the Old and New Testamen
 
 ###3问：圣经主要的教导是什么？
 What do the Scriptures principally teach?
---------------------------------------------------------
 答：圣经主要的教导是：人对于神所当信的真理，以及神要人所当尽的本分。
 The Scriptures principally teach what man is to believe concerning God,and what duty Godrequires man.
 
@@ -93,7 +90,6 @@ The Scriptures principally teach what man is to believe concerning God,and what 
 9、另有人说：“教义信仰不重要，只要有爱心行出来”，对不对呢？真实得救的信，有没有可能不遵行主话？我们基督徒口里说信，有时却行不出来，原因何在？（雅1:21-27；2:14-26；4:17）
 10、圣经主要教导我们“所当信的与所当行的”，是叫我们属神的人得以完全，预备行各样的善事。请反省你自己的“信仰生活”，在哪方面需要加强或改进，请分享。
 
-****************************************************
 
 学习心得：
 

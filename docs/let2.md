@@ -1,6 +1,6 @@
 ### 1问：人的主要目的是什么？
-***
-What is the chief end of man?
+
+What is the chief end of man?  
 答：人的主要目的是，荣耀神，以祂为乐，直到永远。
 The chief end of man is to glorify God,and to enjoy Him for ever.
 

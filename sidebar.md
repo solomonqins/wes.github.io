@@ -2,7 +2,7 @@
 
 作者：[覃许](https://github.com/solomonqins)
 
-署名：公益-非商用
+署名：非商业性用途
 
 ## 目录
 1. [前言](#README)

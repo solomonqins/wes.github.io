@@ -1,4 +1,4 @@
-###1问：人的主要目的是什么？
+### 1问：人的主要目的是什么？
 
 What is the chief end of man?
 答：人的主要目的是，荣耀神，以祂为乐，直到永远。
@@ -34,7 +34,7 @@ The chief end of man is to glorify God,and to enjoy Him for ever.
 实行功课：
 
 
-###2问：神已经赐什么准则，指教我们如何荣耀祂，以祂为乐？
+### 2问：神已经赐什么准则，指教我们如何荣耀祂，以祂为乐？
 
 What rule has God given to direct us how we may glorify and enjoy Him?
 答：神的道记载于新旧约圣经，就是唯一的准则，指教我们如何荣耀祂，以祂为乐。
@@ -67,7 +67,7 @@ The Word of God,which is contained in the Scriptures of the Old and New Testamen
 
 
 
-###3问：圣经主要的教导是什么？
+### 3问：圣经主要的教导是什么？
 
 What do the Scriptures principally teach?
 答：圣经主要的教导是：人对于神所当信的真理，以及神要人所当尽的本分。

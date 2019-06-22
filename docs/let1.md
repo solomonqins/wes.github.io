@@ -1,5 +1,5 @@
 
-![cover](../images/banner.jpg)
+![cover](/banner.jpg)
 
 ###【作者序】
 

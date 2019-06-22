@@ -1,6 +1,6 @@
 ### 13问：我们的始祖持续在他们受造的状态中吗？
-
 Did our first parents continue in the estate wherein wherein they were created？  
+
 **答：** 我们的始祖因其自由意志，选择`犯罪得罪神`，就从当初受造的状态中堕落了。  
 Our first parents,being left to the fredom of their own will,fell from the estatewherein they were created,by sinning against God.
 
@@ -13,8 +13,8 @@ Our first parents,being left to the fredom of their own will,fell from the estat
 
 
 ### 14问：罪是什么？
-
 What is sin?  
+
 **答：** 凡`不遵守`或`违背`神的律法的，都是罪。  
 Sin is any want of conformity unto,or transgression of,the law of God.
 
@@ -31,8 +31,8 @@ Sin is any want of conformity unto,or transgression of,the law of God.
 
 
 ### 15问：我们的始祖犯了什么罪，使他们从当初受造的状态中堕落了？
-
 What was the sin whereby our first parents fell from the estate wherein they were created?  
+
 **答：** 我们的始祖吃了禁果，使他们从受造的状态中堕落了。  
 The sin whereby our first parents fell from the estate wherein they were created,was their eating the forbidden fruit.
 
@@ -43,14 +43,23 @@ The sin whereby our first parents fell from the estate wherein they were created
 
 **问题讨论：**  
 1、人类始祖亚当，在当初被造之时，出于何种状态？（复习第10问答）  
+
 2、亚当在此“原始被造状态”中，所得恩典福气有哪些？（创1:28；雅1:17）  
+
 3、亚当有“自由意志free will”，这是指什么？何谓“自由”?何谓“意志”？  
+
 4、亚当根据其自由意志，对于神的诫命有两种回应的抉择，是哪两种？  
+
 5、今天的世人有没有“自由意志”？能不能靠自己选择真理良善？今天的世人，其意志是“由自”，但不“自由”，原因何在？  
+
 6、何谓“罪”？包含哪两方面？请举例。（约一3:4）；太22:37-40；罗14:23）  
+
 7、何谓“神的律法”？律法的目的与功用何在？（罗2:14-16,7:7-16；加3:24；雅1:25）  
+
 8、亚当夏娃犯了什么罪？有人说他们犯的罪是小罪，如何驳斥这种论调？  
+
 9、亚当夏娃犯罪，从当初被造的状态中堕落了，沦落至何地步（状态）？  
+
 10、从亚当夏娃犯罪直到如今，世人都死在罪中。我们基督徒与世人有何不同？我们的意志是不是真自由？请分享你的看法与经历。  
 
 

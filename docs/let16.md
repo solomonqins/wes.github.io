@@ -1,6 +1,6 @@
 ### 49问：第二诫命是什么？
-
 Which is the second commandment?  
+
 **答：** 第二诫命是：“不可为自己雕刻偶像；也不可作什么形像仿佛上天、下地和地底下、水中的百物。不可跪拜那些像；也不可事奉它，因为我耶和华你的神，是忌邪的神。恨我的，我必追讨他的罪，自父及子，直到三四代；爱我、守我诫命的，我必向他们发慈爱，直到千代”。  
 The second commandment is,You shall not make unto you any graven image,or any likeness of any thing that is in heaven above,or that is in the earth beneath,or that is in the water under the earth.You shall not bow down yourself to them,nor serve them;for I the Lord your God am a jealous God,visiting the iniquity of the fathers upon the children unto the third and fourth generation of them that hate me;and showing mercy unto thousands of them that love me,and keep my commandment.  
 
@@ -11,8 +11,8 @@ The second commandment is,You shall not make unto you any graven image,or any li
 
 
 ### 50问：第二诫命吩咐我们什么？
-
 What is required in the second commandment?  
+
 **答：** 第二诫命吩咐我们：领受与遵行神在圣经中所规定的、一切有关`敬虔的崇拜与律例`，都要纯然的全然的遵守。  
 The second commandment requires the receiving,observing,and keeping pure and entire ,all such religious worship and ordinances as God has appointed in his Word.  
 
@@ -29,16 +29,21 @@ The second commandment requires the receiving,observing,and keeping pure and ent
 
 **问题讨论：**  
 1.第一诫命告诉我们敬拜的对象是真神；第二诫命告诉我们敬拜的方式。  
+
 2.我们不可以用任何眼见和猜想的形像样式来塑造偶像作为敬拜的对象和媒介，原因何在？  
+
 3.神是灵，所以他没有身体。那我们敬拜他必须用何种方法？（约4:23-24；徒14:8-9,17:22-31）  
+
 4.拜偶像和贿赂偶像作媒介来敬拜人与恨神有何关系？（罗1:19-25）  
+
 5.为何“恨我的，我必追讨他的罪，自父及子，直到三四代”？（结18:20）  
+
 6.请背诵“约4:23-24”，分享你的学习心得。  
 
 
 ### 51问：第二诫命禁止我们作什么？
-
 What is forbidden in the second commandment?  
+
 **答：** 第二诫命禁止我们用任何`形象`来敬拜神，或用`圣经所没有指定的任何方法`来敬拜他。  
 The second commandment forbids the worshiping of God by images,or any other way not appointed in His Word.  
 
@@ -53,8 +58,8 @@ The second commandment forbids the worshiping of God by images,or any other way 
 
 
 ### 52问：第二诫命所举出的理由依据是什么？
-
 What are the reasons annexed to the second commandment?  
+
 **答：** 第二诫命所举出的理由依据是：神在我们身上拥有主权，我们属于他，他热切要我们以正确方法来敬拜他。  
 The reasons annexed to the second commandment are,God’s sovereignty over us,His propriety in us,and His zeal He has to His own worship.  
 
@@ -72,16 +77,24 @@ The reasons annexed to the second commandment are,God’s sovereignty over us,Hi
 1.第二诫命禁止我们：  
 （1）以图像形像来敬拜；  
 （2）以圣经所没有指定的任何方法方式来敬拜。  
+
 2.我们要遵守第二诫命的特别理由：  
 （1）神的主权，我们要全然顺服；  
 （2）神的产业，我们是他的子民，单属于他；  
 （3）神的热心，他是忌邪的神，必要保守敬拜的纯全。  
+
 3.今日教会的敬拜方式，有没有违背第二诫命？请举例讨论。  
+
 4.为主耶稣雕像或画像，是不是错的，原因何在？  
+
 5.如果我们不以外在的形象来敬拜，但是以心中的肖像（例如在“内在医治”中的灵觉图像）来思想主，是否违背了第二诫命？  
+
 6.我们可否以主耶稣的画像，来教导小孩（或成人）？原因何在？  
+
 7.达芬奇的名画“最后的晚餐”，合不合适挂在我们家中？其他图画呢？  
+
 8.积极正面来说，基督徒团体与个人的敬拜生活，圣经总原则为何？（约4:23-24；启19:9-10）  
+
 9.请背诵“诗篇100:2-3”，分享你的学习心得。  
 
 

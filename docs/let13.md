@@ -1,6 +1,6 @@
 ### 37问：信徒离世时，从基督得着什么恩福？
-
 What benefits do believers receive from Christ at death?  
+
 **答：** 信徒离世时，他们的`灵魂`就得以`完全成圣`，立即`进入荣耀里`；他们的身体仍然是与基督联合的，就安歇在坟墓里，直到复活的时候。  
 The souls of believers are at their death made perfect in holines,and do immediately pass into glory;at their bodies,being still united to Christ,do rest in their graves  till the resurrection.  
 
@@ -19,18 +19,29 @@ The souls of believers are at their death made perfect in holines,and do immedia
 
 **问题讨论：**  
 1.信徒在今世所得的恩福，有“称义，得儿女名分，成圣”等主要福分，有五方面的彰显：确信神爱我们，从罪咎与恐惧中得释放，活在圣灵中的喜乐，在恩典中长进，永蒙保守得救到底。  
+
 2.我们在今生结束之后，所得的恩福有两方面：  
 （1）灵魂完全成圣，进入天家与主同在；  
 （2）身体安歇在坟墓中，等候末日复活。在“我们离开世界后”与“基督再来时”之间，基督徒所处之状态，称为“居间之境intermediate state”。  
+
 3.何谓“死亡”为何人会死？（罗3:23,5:12；弗2:1，创2:17）  
+
 4.信徒与非信徒的死亡，有何相同之处？有何不同之处？（太25：46；约5:28）  
+
 5.基督徒为何要经历死亡呢？（腓1:20,3:20；提后4:7）  
+
 6.有些异端教派传讲“灵魂睡眠论”，其错误何在？  
+
 7.罗马天主教的“炼狱论”，其错误何在？  
+
 8.有人强调“灵魂得救”而忽视“身体得救”，这在信仰与生活上带来什么后果？（罗12:1；林前6:19-20）  
+
 9.我们应当向往“居间之境”吗？（腓1:20-24；林后5:1-8）  
+
 10.我们能否不像非信徒那般惧怕死亡呢？（林前15:26,54-56；启1:18,2:10）  
+
 11.在我们得救之时，神为何不立刻拯救我们完全脱离死亡？（约5:25-29；罗8:23；约一3:14）  
+
 12.请背诵哥林多后书5:8-9，并分享你的学习心得。  
 
 
@@ -40,8 +51,8 @@ The souls of believers are at their death made perfect in holines,and do immedia
 
 
 ### 38问：信徒复活时，从基督得了什么恩福？
-
 What benefits do believers receive from Christ at the resurrection?  
+
 **答：** 在复活之时，信徒`在荣耀中复起`；并在审判日，`当众被主承认并宣判无罪`，完全得着一切恩福，全然`以神为乐`，直到永远。  
 At the resurrection, believers being raised up in glory,shall be openly acknowledged and acquitted in the dau of judgment,and made perfectly blessed in the full enjoyment of God to full eternity.  
 
@@ -60,15 +71,25 @@ At the resurrection, believers being raised up in glory,shall be openly acknowle
 
 **问题讨论：**  
 1.何谓“复活”？“肉身复活”是基要真理吗？（徒17:32；林前15:12-19）  
+
 2.圣经教导我们“复活”的真理，其特点有哪些？（林前15:20-23.50-54；罗2:5-11；腓3:20-21）  
+
 3.关于我们“复活的身体”，与现今的身体有何异同？（林前15:35-58）  
+
 4.“在荣耀中”所指为何？（林后3:18；罗8:28-30）  
+
 5.在“最后的审判”时，会发生什么事？（太25:31-46；启20:11-14）  
+
 6.我们基督徒在最终状态时，完全得着一切恩福，其特征为何？（林前13:12；约一3：2；启7:16；21:4；22:3-5）  
+
 7.我们再最终状态时，是在“天堂”里，“天堂”的本质与特征为何？（诗33:13-14；太6:9；彼后3:10；启21:1）  
+
 8.我们复活之后，在天堂生活，是“满足的喜乐，永远的喜乐”，原因何在？（启22:4；约一3:2；启7:17）  
+
 9.我们在天堂里所得的“最大赏赐”为何？何谓“天堂的天堂”？（诗16:11；36:9；创15:1）  
+
 10.我们在荣耀里，就能完全活出“人的主要目的”，人的主要目的为何？  
+
 11.请背诵诗篇16:10-11，并分享你的学习心得。  
 
 

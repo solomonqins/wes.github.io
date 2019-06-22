@@ -1,6 +1,6 @@
 ### 4问：神是怎样的神？
-
 What is God?  
+
 **答：** 神是灵。祂的本体、智慧、权能、圣洁、公义、良善、真实，都是无限无量、无始无终、
 永不改变的。  
 God is spirit,infinite,eternal,and unchangeable in his being,wisdom,power,holy,justice,goodness,and truth.
@@ -25,14 +25,23 @@ God is spirit,infinite,eternal,and unchangeable in his being,wisdom,power,holy,j
 
 **问题讨论：**  
 1、“神”是“灵”，这是什么意思？（约4:24）  
+
 2、为何“人”可以认识神与敬拜祂？（林前2:11-16；罗1:19-20,2:14）  
+
 3、从来没有人见过神的本体（约1:18；约一4:12），原因是什么？  
+
 4、圣经禁止我们使用任何的图像，来想像或敬拜祂，原因何在？（出20:4；赛40:18）  
+
 5、神的本体有哪些属性，是受造物所没有的？请解释这些“绝对的属性”（超越在受造物之上）的意义为何？  
+
 6、我们不能看见神的本体，却可以“间接的”认识神，原因何在？（神的荣耀，神的显现，神的形像）？  
+
 7、神的属性中，有哪些是可以与人分享的？请解释这些“相对的属性”（临在于受造物之中）各自的意义为何？  
+
 8、人是按照神的形像被造，人的本体是有限的finite，现实的temporal,改变的changeable。所以我们与神的关系为何？（创1:26-28；诗8；诗90；赛40:12-31）  
+
 9、人是神的形像，我们有“相对的属性”，请解释有哪些？（彼后1:3；太5:48；弗4:23-32；西3:10-14；来12:10-14；彼前1:15；2:9）  
+
 10、神与人的相对属性，是否是一样的？有无区别？请以“神的真实”为例来说明（民23:19；申18:20-22；诗19:9；林前1:9；提后2:13；来10:23；多1:2）  
   
 
@@ -42,8 +51,8 @@ God is spirit,infinite,eternal,and unchangeable in his being,wisdom,power,holy,j
 
 
 ### 5问：神是独一的吗？
-
 Are there more Gods than one?  
+
 **答：** 神是独一无二的、又真又活的。  
 There is but one only,the living and true God.
 
@@ -57,8 +66,8 @@ There is but one only,the living and true God.
 
 
 ### 6问：神有几个位格？
-
 How many persons are there in the Godhead?  
+
 **答：** 神有三位格：`圣父、圣子、圣灵`；这三位格就是同一真神，同本质，同权能，同荣耀。  
 There are three persons in the Godhead;the Father,the Son,and the Holy Ghost;and these three are one God,the same in substance,equal in power and glory.
 
@@ -72,14 +81,23 @@ There are three persons in the Godhead;the Father,the Son,and the Holy Ghost;and
 
 **问题讨论：**  
 1、圣经启示我们：神是三位一体的真身。请说明何谓“三位一体Trinity”？  
+
 2、什么是“位格Person”？什么是“本体Being”？  
+
 3、“独神论Unitarianism”相信什么？现代有哪些异教或异端是“独神论”？  
+
 4、“多神论Polytheism”相信什么？现代有哪些异教或异端是“多神论”？  
+
 5、请引证圣经说明：神是独一的真神。  
+
 6、请引证圣经说明：神的本体中有三位格。  
+
 7、“神的位格”具有“神的名称”，“神的属性”，“神的作为”，“神的荣耀”。请从上述四项，各举一处经文来说明“圣子”位格与“圣灵”位格。  
+
 8、旧约圣经有没有讲到“三一真神”的教义？请举例。  
+
 9、新约圣经有没有讲到“三一真神”的教义？请举例。  
+
 10、认识“三一真神”的真理，和我们信仰与生活的关系为何？  
 
 

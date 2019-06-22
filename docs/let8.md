@@ -1,6 +1,6 @@
 ### 16问：全人类都在亚当初次犯罪中堕落了吗？
-
 Did all mankind fall in Adam’s transgression?  
+
 **答：** 神和亚当所立的圣约，不单是为他自己，也是为了祂的后裔；`全人类`都是按常例传宗接代，由亚当而来，`在亚当里犯了罪`，在他初次犯罪中`与他一同堕落了`。  
 The covenant being made with Adam,not only for himself ,but for posterity;all mankind,descending from him by ordinary generation,sinned in him,and fell with him,in his firsttransgression.
 
@@ -14,8 +14,8 @@ The covenant being made with Adam,not only for himself ,but for posterity;all ma
 
 
 ### 17问：堕落使人类陷入什么状态？
-
 Into what estate did the fall bring mankind?  
+
 **答：** 堕落使人类陷入`罪恶`和`悲惨`的状态中。  
 The fall brought mankind into an estate of sin and misery.
 
@@ -27,20 +27,29 @@ The fall brought mankind into an estate of sin and misery.
 
 **问题讨论：**  
 1.全人类都是亚当的后裔，“后裔”是什么意思？  
+
 2.神与亚当所立的“生命的圣约”，内容与目的为何？（复习第12问答）  
+
 3.此“生命之约”的设立，不只是为了亚当，也是为谁？这表明亚当与我们之间的关系为何？  
+
 4.如果亚当遵行此“生命之约”，而不背约，则为他自己和我们带来什么结果？  
+
 5.此“生命之约”是分别善恶的测验，亚当背约，使得他与我们一同遭到的后果为何？  
+
 6.“我们在亚当里犯了罪”是什么意思？“在他初次犯罪中，全人类都与他一同堕落了”，原因何在？  
+
 7.凡是亚当的后裔即全人类，都是罪人，罪人常常抱怨什么？  
+
 8.何谓“堕落”，何谓“死亡”？为什么每个人都会死？死后的存在状态为何？  
+
 9.亚当是基督的“预像pattern”，主基督被称为“末后的亚当”，原因何在？与我们的关系为何？请从“罗5:12-21”与“林前15:21-22”来说明。  
+
 10.请分享你今天的学习心得，特别是“亚当与你”以及“基督与你”的关系。  
 
 
 ### 18问：人堕落的状态中，其罪恶有哪些？
-
 Wherein consists the sinfulness of that estate whereinto man fell?  
+
 **答：** 人堕落的状态中，其罪恶有：一、亚当初犯的`罪咎`、原有仁义的`丧失`、人性全面的败坏（通常称为“原罪”），二、人从罪性所发出的一切`过犯`。  
 The sinfulness of that estate whereinto man fell,consists in the guilt of Adam’s firstsin,the want of original righteousness,and the corruption of his whole nature,which is commonly called Original Sin,together with all actual transgressions which proceeds from it.
 
@@ -56,14 +65,23 @@ The sinfulness of that estate whereinto man fell,consists in the guilt of Adam�
 
 **问题讨论：**  
 1.人类自从亚当犯罪堕落之后，就陷入罪恶状态中，何谓“罪恶的状态”？  
+
 2.每一个人都是罪人，其罪恶包括哪些方面？  
+
 3.亚当背约吃禁果的罪咎，人人有份，原因何在？  
+
 4.何谓“起初的仁义”（或称“原义”）？我们如何失去了“原义”？  
+
 5.通常所说的“原罪”，所指为何？这与我们的“罪念与罪行”的关系为何？  
+
 6.罪人具有“全然败坏的罪性”，“全然”是什么意思？  
+
 7.世人全然败坏的事实，在创世纪6:5的记载，情形如何？洪水之后的世人，与洪水之前的世人，罪性是否相同？  
+
 8.今天世人没有在每时每刻，都彻底活出其败坏的罪性，原因何在？（罗2:15，,13:1-5；来2:15）  
+
 9.世人有能力行善吗？所谓“好人好事”，究竟是什么回事？  
+
 10.我们认清了人犯罪堕落的真相，对我们有何益处？  
 
 
@@ -73,8 +91,8 @@ The sinfulness of that estate whereinto man fell,consists in the guilt of Adam�
 
 
 ### 19问：人堕落的状态中，其悲惨是什么？
-
 What is the misery of that estate where into man fell?  
+
 **答：** 全人类由于堕落，`丧失了与神的交通`，落在神的`愤怒和咒诅之下`，所以应受`今生一切的愁苦、死亡`，以及`地狱`永远的痛苦。  
 All mankind by their fall lost communion with God,are under his wrath and curse,and so made liable to all miseries in this life,to death itself,and to the pains of hell for ever.
 
@@ -94,14 +112,23 @@ All mankind by their fall lost communion with God,are under his wrath and curse,
 
 **问题讨论：**  
 1.人犯罪之后，堕落至悲惨境况中，此苦况根本的原因何在？  
+
 2.此悲惨境况的结果，有哪三方面？  
+
 3.我们如何知道人丧失了与神的相交？（创3:6-24；罗1:18-23；约一1:1-5）  
+
 4.我们怎么知道人在神的震怒与咒诅之下？（诗90:1-11；罗1:24-32）  
+
 5.人在今生中有哪些愁苦？（伯5:7；诗73:5；传道书）  
+
 6.基督徒与非基督徒都遭受人生的苦难，有什么分别？（来12:6）  
+
 7.为何人人都要面对死亡呢？（来9:27；罗5:12-21；林前15:26）  
+
 8.基督徒与非基督徒的死亡，有何区别？（约5:24；帖前4:13-14；林后5:1-10）  
+
 9.我们怎么知道有地狱的永刑？（太3:12,8:12；可9:48；启14:10）  
+
 10.为何信主的人有永生？我们怎么知道自已有永生？（约3:36；约一5:11-13）  
 
 

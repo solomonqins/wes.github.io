@@ -28,8 +28,8 @@
 
 
 ### 42问：十诫的总纲是什么？
-
 What is the sum of the ten commandments?  
+
 **答：** 十诫的总纲，就是要尽心、尽性、尽意、尽力，`爱主我们的神`，并且`爱邻舍如同自己`。  
 The sum of the ten commandments is,To love the Lord our God with all our heart,with all or soul,with all our strength,and with all our mind,and our neighbors as ourselves.  
 
@@ -41,14 +41,23 @@ The sum of the ten commandments is,To love the Lord our God with all our heart,w
 
 **问题讨论：**  
 1.圣经主要教导的有两部分：人对于神所当信的；神要求人当尽的本分（第3问答）。第3-38”问教导我们所当“信”的；第30-107问教导我们所当“行”的；“信”与“行”不可分开，原因何在？（太7:24-27；来11:6；雅1:22-25,2:22）  
+
 2.为何人要向神负责，要尽本分？  
+
 3.何谓“道德律”？其内容为何？人类自亚当以来，每一人是否都领受了“道德律”？（罗2:14-15；弗4:24）  
+
 4.何谓“十诫”？其内容如何？为何说：“道德律”是总括在“十诫”里面呢？  
+
 5.既然“道德律”的功用在人心，是与生俱来的，为何神还要赐下“十诫”来启示呢？（罗1:20-28,3:20；约3:19；加3:19,24）  
+
 6.“十诫”是专为犹太人设立的吗？基督徒需要遵行十诫吗？世人需要遵行吗？  
+
 7.“律法”的目的与功用为何？对于“非基督徒”（世人）而言，其作用为何？（罗3:20）  
+
 8.“律法”与“福音”的关系为何？（太5:17),对于基督徒，律法的功用为何？（约14:21；林前9:21约一5:2,3）  
+
 9.旧约“律法”除了“十诫”（道德律）之外，还有哪些？它们与“十诫”的关系为何，今日仍然施行吗？  
+
 10.“十诫”的总纲是什么？这“两条诫命”总结了什么，与我们“基督徒生活”的关系为何？请背诵“太22:37-40”。  
 
 
@@ -67,8 +76,8 @@ The sum of the ten commandments is,To love the Lord our God with all our heart,w
 
 
 ### 44问：十诫的序言教导我们什么？
-
 What does the perface to the ten commandments teach us?  
+
 **答：** 十诫的序言教导我们：因为耶和华是主、是我们的神、是我们的救赎主、所以我们应当遵守他一切的诫命。  
 The perface to the ten commandments teaches us,That because God is the Lord,and our God,and Redeemer,therefore we are bound to keep all Hiscommandments.  
 
@@ -86,14 +95,23 @@ The perface to the ten commandments teaches us,That because God is the Lord,and 
 1.本课要理问答教导我们两大重要原则：  
 （1）神爱我们，将我们从罪恶捆绑中拯救出来；  
 （2）蒙救赎的我们，有责任要遵行神的诫命。  
+
 2、“爱”和“律法”的关系为何？（罗13:10；太5:48）  
+
 3.爱主的人必会遵行主的命令，原因何在？（约14:15,21；约一5:3）  
+
 4.主耶稣在世的一生，彰显出他对律法的态度为何？（太5:17-18）  
+
 5.忽略或不遵行诫命的人，他在神眼中是怎样的人？（太5:19-20）  
+
 6.旧约时代的人，是否因遵行律法才得救？（罗3:20,28）  
+
 7.新约信徒是否需要遵行律法？我们是否比以色列人更有理由要遵行律法？（罗3:31；弗2:10）  
+
 8.学习“十诫”的三原则：（1）十诫是全备的；（2）十诫是循序的；（3）十诫是一体的。  
+
 9.“十诫”的安排次序，如何显明“敬拜”与“事奉”的宝贵真理？  
+
 10.请背诵“约翰福音14:15”，分享今天的学习心得。  
 
 

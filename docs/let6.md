@@ -1,6 +1,6 @@
 ### 11问：神的护理之工是什么？
-
 What are God’s works of providence?  
+
 **答：** 神的护理之工，就是以祂至极的圣洁、智慧、权能，`保护管理`祂所造的万物，和他们一切的动作。  
 God’s works of providence are,his most holy,wise,powerful preserving and governingall his creatures,and all their actions.
 
@@ -17,20 +17,29 @@ God’s works of providence are,his most holy,wise,powerful preserving and gover
 
 **问题讨论：**  
 1、何谓“神的护理之工”？这与“创造之工”有何关系？  
+
 2、神的护理之工，是祂的保护欲治理万事万物，目的为何？（罗8:28；11:36；弗1:1）  
+
 3、神保存护理（preserve）祂所造的万物，这所指为何？（诗91:5；来1:3；徒17:27-28；尼9:6；西1:17）  
+
 4、神掌管治理（govern）万事万物，这所指为何？（诗91:7；46：1-3）  
+
 5、何谓“自然界nature”请从圣经举例说明：神完全掌管自然界的事物。（太5:45；诗104:14；伯37:10-12）  
+
 6、何谓“国家大事”请从圣经举例说明：神掌管人间国度的事物。（但4:25；2:21；徒17:26）  
+
 7、何谓“个人小事”？请从圣经举例说明：神掌管世上每个人的遭遇、心思和行动。（撒上2:6-8；箴16:1；9；腓2:13；诗76:10）  
+
 8、有人认为神只管大事，不管小事。这样的解释理由何在？合不合乎圣经？（太6:25-34,10:29-31；箴16:33,21:1）  
+
 9、万事万物的发生进行，有无“偶然”或“自然”的事？（王上22:1-38；以斯帖记）  
+
 10、“神的护理之工”此圣经教训，对于基督徒的意义为何？对你而言，有没有带来忍耐和安慰，活泼的盼望。请分享。（罗8:28-30,15:4）  
 
 
 ### 12问：当神造人的时候，神向人施行的特别护理作为是什么？
-
 What special act of providence did God exercise toward man in the estate wherein he was created?  
+
 **答：** 当神造人之后，祂与人立了`生命之约`---以`完全顺服`为条件----以`死亡`的痛苦为刑罚，禁止人
 吃分别善恶树的果子。  
 When God had created man,he entered into a covenant of life with him,upon condition of perfect obedience;forbidding him to eat the tree of knowledge of good and evil,upon the pain of death.
@@ -45,14 +54,23 @@ When God had created man,he entered into a covenant of life with him,upon condit
 
 **问题讨论：**  
 1.“圣约covenant”是什么意思？  
+
 2.神与亚当立了圣约，称为“生命之约covenant of life”，原因何在？此约又称为“创造之约covenant of creation",其理由何在？  
+
 3.此“生命之约”又称为“行为（工作）之约covenant of work”，其内容为何？条件为何？  
+
 4.若亚当遵行此约，他得到的恩福赏赐（blessing）为何？亚当在伊甸园中，一切树上的果子都可吃，包括“生命树”，这显明什么？（雅1:18）  
+
 5.“分别善恶树”的果子不可吃，吃的日子必定死，这是背约的刑罚（curse）。“分别善恶”与“选择生死”的关系为何？  
+
 6.虽然此“生命之约”是含有人应遵行的义务，但其本质仍然是恩典；神的主权恩典在先，人的顺服行为在后。请举例说明此真理。  
+
 7.此“生命之约”乃是“生命的测验”，此测验的目的何在？亚当在被造时的生命，是不是完美的？经过此测验后，他会进到什么状态？  
+
 8.人类是亚当的后裔，此“生命之约”与我们的关系为何？我们与亚当在此约内的关系是什么？（罗15:12-21；林前15:21-22,45-49）  
+
 9.亚当乃是主耶稣的预像pattern，我们基督徒乃是主耶稣的后裔，我们在救恩“新造之约（covenant of new creation”中与主耶稣的关系为何？（林后5:16-17）   
+
 10.在“首先的亚当”里，我们的结局是什么？（罗3:23）在“末后的亚当”主耶稣里，我们得着了什么？（罗6:23）  
 
 

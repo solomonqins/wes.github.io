@@ -1,6 +1,6 @@
 ### 53问：第三诫命是什么？
-
 Which is the third commandment?  
+
 **答：** 第三诫命是：“不可妄称耶和华你神的名，因为妄称耶和华名的，耶和华必不以他为无罪。”  
 The third commandment is,you shall not take the name of the Lord thy God in vain;for the Lord will not hold him guiltless that takes his name in vain.  
 
@@ -11,8 +11,8 @@ The third commandment is,you shall not take the name of the Lord thy God in vain
 
 
 ### 54问：第三诫命吩咐我们作什么？
-
 What is required in the third commandment?  
+
 **答：** 第三诫命吩咐我们：当存`圣洁敬畏`的心，使用神的名字、称号、属性、法则、圣道与工作。  
 The third commandment requires the holy and reverent use of God’s names,titles,attributes,ordinances,Word,and works.  
 
@@ -33,9 +33,13 @@ The third commandment requires the holy and reverent use of God’s names,titles
 
 **问题讨论：**  
 1.第一诫命告诉我们“敬拜的对象”，第二诫命告诉我们“敬拜的方式”，第三诫命告诉我们“敬拜的态度”：敬拜神，必须诚心实意（书24:14），以圣洁敬畏的心，称呼神的圣名，因为主的名在全地何其美（诗8:1）。  
+
 2.“不可妄称主的名”：“妄”是指“空泛，虚妄”，凡是不真诚，不经心，不实在的称呼或使用主的圣名，都是“妄称主名”。  
+
 3.第三诫命吩咐我们要以圣洁敬畏的心，来面对“神的圣名”。“神的圣名”狭义是指神的名字与称号；广义是指神所启示的一切：他的属性，律法，话语，工作。所以“奉主的名”包括了我们信仰生活的全部，人生没有一件事物在“奉主的名”之外。  
+
 4.神在救赎历史的渐进启示中，赐下他的圣名，使我们可藉之认识他求告他（创4:26）。神的圣名非常重要，因这是神的荣耀与名声，当受极大的尊敬；敬畏神的圣名，就是敬畏神本身（申28:58）。所以，凡妄称主名的，要遭严厉的惩罚（利24:10-23）  
+
 5.神的名字是如此的神圣，因为神的圣名是启示出他的位格与作为：  
 （1）神的圣名彰显他的﹍位格或是身份﹍  
 （诗9:10,91:14；徒17:23；赛52:6,47:4,42:8）。  
@@ -45,15 +49,18 @@ The third commandment requires the holy and reverent use of God’s names,titles
 （王上8:17；诗75:1,29:2,48:10,52:9,72:19,79:9,105:3）。  
 （4）神的圣名最大最高的彰显是在﹍耶稣基督﹍里。  
 （约17:6,26；太48:19；林后13:14）。  
+
 6.“奉主的名”是什么意思？  
 “妄称主的名”包括哪些事情？  
+
 7.传道书5:1-5警告我们不可妄称主名，其内容为何？原因何在？  
+
 8.请背诵“诗篇20:7与8:1”，分享今日的学习心得。  
 
 
 ### 55问：第三诫命禁止我们什么？
-
 What is forbidden in the third commandment?  
+
 **答：** 第三诫命禁止我们`亵渎`与`妄用`凡神藉以彰显自己的任何事物。  
 The third commandment forbids all profaning and abusing of any thing where by God makes himself known.  
 
@@ -66,8 +73,8 @@ The third commandment forbids all profaning and abusing of any thing where by Go
 
 
 ### 56问：第三诫命所举出的理由依据是什么？
-
 What is the reason annexed to the third commandment?  
+
 **答：** 第三诫命所举出的理由依据是：虽然违犯此诫命，可能逃避从人来的刑罚，但是主耶和华我们的神，必不容他们逃脱他公义的审判。  
 The reason annexed to the third commandment is,That however the breakers of this commandment escape punishment from men,yet the Lord our Godwill not suffer them to escapehis righteous judgment.  
 
@@ -78,20 +85,29 @@ The reason annexed to the third commandment is,That however the breakers of this
 
 **问题讨论：**  
 1.第三诫命禁止我们妄称主名：任何不恭敬，不真诚的使用神的圣名，都违背了第三诫命。广义来说，任何犯罪，都是不敬畏神的圣名，因为万有都是本于他，依靠他，归于他。犯罪就是亏缺了神的荣耀。  
+
 2.“主必不用以他为无罪”：此特别警告表明主不会容许人妄用他的圣名，必定会施行审判刑罚。  
+
 3.第三诫命的积极正面：基督徒是圣约子民，凡事要奉主的名，无论说话行事，或吃或喝，都要为荣耀神而行。  
+
 4.基督徒可不可以许愿？起誓言？（传5:2-5；申6:13；诗15:4）  
+
 5.哪些“起誓”是圣经禁止的？（提前1:10；太5:34-36,23:16-22；雅5:12；徒18:18）  
+
 6.基督徒说话的原则是“奉主的名，是就说是，不是就说不是”，若再多说，就会带来什么结果？（太5:37；雅5:12）  
+
 7.第三诫命提醒我们的生活就是敬拜，活在神面前。当今的人们常犯的错误有三大方面：  
 （1）“形式主义Formalism”以“敬虔外貌”代替“真心实意”（赛29:13-14；提后3:5）  
 （2）“传统主义Traditionalism”以“人的遗传”废掉“神的诫命”（可7:7-13）  
 （3）“现实主义Modernism”以“现代思想”曲解“圣经真理”（太7:21-23）  
+
 8.人们为何会违犯第三诫命？如何防范避免？  
 （1）因为人里面的罪性，人心的诡诈。（耶17:9）  
 （2）因为恶者的试探欺骗，遍地寻找。（彼前5:8；林后11:14-15）  
 （3）所以，我们要警醒祷告，省察自己。（太24:4；林前6：9；加6:7；约一3:7；林后13:5）  
+
 9.忠心良善的仆人，奉主的名说话行事。基督徒个人，与主的教会，都承担了主的圣名，所以在信仰与生活各方面，都不可妄称主的名，反而要高举主的名。（启22:4；约16:24；徒4:12）一个忠信的教会，应当如何高举主的圣名？  
+
 10.请背诵“歌罗西书3:17”，分享你的学习心得与实行功课。  
 
 

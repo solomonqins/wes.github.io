@@ -1,6 +1,6 @@
 ### 7问：神的旨意是什么？
-
 What are the decrees of God?  
+
 **答：** 神的旨意，就是祂永恒里的目的，根据祂计划的美意；藉此，祂为自己的荣耀，预定了一切将要发生的事。  
 The  decrees of God are his eternal purpose,according to the counsel of his will,whereby,for his own glory,he has fore-ordained whatsoever comes to pass.  
 
@@ -15,14 +15,23 @@ The  decrees of God are his eternal purpose,according to the counsel of his will
 
 **问题讨论：**  
 1、何谓“神的旨意”？什么是“美意”？什么是“预定”？  
+
 2、“神的旨意”是否有其终极目的？其终极目的是什么？  
+
 3、“神的旨意”是否会改变？这与我们有何关系？  
+
 4、“神的旨意”是包括万事万物吗？“神的计划”中有无“偶然”或“意外”？  
+
 5、“神的旨意”可区分为哪三大类？如此区分的目的与意义为何？与我们的关系为何？  
+
 6、我们应当如何来了解“神的旨意计划”？以什么心态来学习认识？  
+
 7、圣经所说的“神的旨意预定”与世俗哲学的“宿命论”有何不同？  
+
 8、请引证圣经来说明“神的主权”与“人的责任”的关系。  
+
 9、我们信靠神的主权旨意，必会产生什么生活果效？  
+
 10、以“感谢赞美”的心来到施恩宝座前祈求祷告，是认识并经历“神的主权旨意”的最佳途径，请分享你
 的见证经历。  
 
@@ -33,8 +42,8 @@ The  decrees of God are his eternal purpose,according to the counsel of his will
 
 
 ### 8问：神怎样执行祂的旨意？
-
 How does God execute His decrees?  
+
 **答：** 神以创造和护理之工，来执行祂的旨意。  
 God executes His decrees in the works of creation and providence.  
 

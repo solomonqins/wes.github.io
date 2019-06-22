@@ -1,6 +1,6 @@
 ### 32问：蒙了有效恩召的人，在今生所领受的恩福有哪些？
-
 What benefits do they that are effectually called partake of in this life?  
+
 **答：** 蒙了有效恩召的人，确实得以在今生领受：`称义、得儿女名分、成圣、`以及其他在今世与此相伴而来、随之而来的`福分`。  
 They that are effectually called do in this life partake of justification,adoption,and sanctification,and several benefits which in this life do either accompany or flow fromthem.  
 
@@ -14,8 +14,8 @@ They that are effectually called do in this life partake of justification,adopti
 
 
 ### 33问：“称义”是什么？
-
 What is justification?  
+
 **答：** “称义”是`神白白恩典的行动`，在其中神`赦免我们一切的罪恶`，`接纳`我们在他面前为`义人`，这唯独因基督的义归算给我们，而我们只凭信心接受而已。  
 Justification is an act of God’s free grace,wherein he pardons all our sins,and accepts us as righteous in his sight,only for the righteousness of Christ imputed to us,and received by faith alone.  
 
@@ -30,18 +30,25 @@ Justification is an act of God’s free grace,wherein he pardons all our sins,an
 
 **问题讨论：**  
 1.不信是世人不听从“福音的呼召”，属上帝的人必定听从“恩召”，此“恩召”必定成就确实的果效，因为“主的羊听主的声音”，跟随主而行。所以，这是“有效的恩召”，使得主的羊得生命。（约5:24-25,6:35-40,43-45,8:47,10:1-4,26-30）  
+
 2.主耶稣称我们为“他自己的羊”，他按着名叫自己的羊，把羊领出来（约10:3-4）。所以，我们这些属主的人，领受了“有效的恩召”的一切恩福（太1:21；约13:1）。  
+
 3.“有效的恩召”使我们的主基督里得生命，并且得的更丰盛。从诗篇23篇来看，这“恩召”所包括的恩福有哪些？（弗1:3-14）  
+
 4.何谓“称义”？称义的本质是什么？（罗5:18-19；多3:5；弗1:7）  
+
 5.神如何称罪人为义呢？称义的根据为何？（罗5:8-10；林后5:21）  
+
 6.何谓“唯独因信称义”？称义的媒介为何？（罗3:28,4:5,10:10；加3:11,2:16）  
+
 7.我们藉以称义的信心，乃是神所赐给我们的。此“信心”和“行为”的关系为何？（弗2:8-10；加5:6；雅2:17-26）  
+
 8.请背诵“罗马书3:23-24；腓3:9”，分享你今日所学的。  
 
 
 ### 34问：“得儿女名分”是什么？
-
 What is adoption?  
+
 **答：** “得儿女名分”是`神白白恩典的行动`，藉此我们被`收纳为神的儿女`，使得我们`有权柄`，享受神儿女的`一切特别权益`。  
 Adoption is an act of God’s free grace,whereby we are received into the number,and have a right to all the privileges of the sons of God.  
 
@@ -54,19 +61,27 @@ Adoption is an act of God’s free grace,whereby we are received into the number
 
 **问题讨论：**  
 1.“得儿女名分Adoption”是指收纳一原本不是儿女（非我民）的人，称为神家的儿女（我民）。这与“称义”是一体的两面。称义是强调“法理”，“收纳”是着重“亲情”。“收纳”完全是神的恩典主权的行动，使我们成为神的儿女，得着神家的一切恩福，不单是儿女名分，更可享受儿女的一切权利与责任。  
+
 2.人是按着神的形象被造，从“创造”的角度广义而言，人都是神的儿女（徒17:26；来12:9）。但是人犯罪堕落以后，认贼作父，成为恶者的儿女（约8:44）。当我们在基督里蒙了神的怜悯，成为神的子民。（何1:9-10,2:23）  
+
 3.我们是“神的儿女”，与主基督是“神的儿子”，其中的关系如何？（太16:16；弗1:4-6；罗8:29-30；来：2:10-18）  
+
 4.“得儿女名分”是如何得到的？需要申请吗？需要等多久？（约1:12-13；约一3:1-3）  
+
 5.“得儿女名分”的有效期间有多长？会不会失去？（约10:29）  
+
 6.“儿女的名分”是我们现在可以经历的吗？如何才能经历到呢？（加4:4-7；罗8:15-17）  
+
 7.现在我们是神的儿女，将来如何呢？何时我们可以完全享受“神儿女名分”的全部实现？（约一3:1-3；罗8:18-27；启21:3-8）  
+
 8.我们享受“神儿女名分”的一切“权利”，我们有没有靠主恩典当尽的儿女“责任”呢？有没有当受的“管教”呢？（来12:4-13）  
+
 9.请背诵“箴言23:26”，分享你今日的学习所得。  
 
 
 ### 35问：“成圣”是什么？
-
 What is sanctification?  
+
 **答：** “成圣”是`神白白恩典的工作`，藉此我们全人被更新，恢复`神的形像`；并且使我们得能力，愈来愈`向罪死，向义活`。  
 Sanctification is the work of God’s fre grace,where by we are renewd in the whole man after the image of God,and are enabled more and more to die unto sin,and live unto righteousness.  
 
@@ -83,19 +98,27 @@ Sanctification is the work of God’s fre grace,where by we are renewd in the wh
 
 **问题讨论：**  
 1.神在创立世界以先，在基督里拣选了我们，目的是要我们“成为圣洁”（弗1:4）。因此我们奉召作“圣徒”，藉着圣灵成为圣洁，过圣洁生活（来3:1；彼前1:2）。这乃是神白白恩典的工作，在我们重生之时开始，直到见主面之时完成。（来12:14）  
+
 2.“成圣”是神创始成终的工作，有“起初的确定”（罗1:7；林前1:2；林后1:1）与“渐进的过程”（帖前5:23）。“称义，得儿子名分”则是神一次永远的行动。  
+
 3.成圣的本质：生命的更新，恢复神的形象（林后5:17；弗4:24；西3:10）。  
+
 4.成圣的特征：分别为圣，愈来愈像主基督（林后3:18；罗8:29；来2:10-11；12:10）。  
+
 5.成圣的进程：敬虔的操练长进（彼后1:2-14），脱去旧人（罗6:6；加5:24），穿上新人（弗4:24；西3:10）  
+
 6.成圣的指南：圣灵使用圣经，使我们成为圣洁，学主基督（诗1，19,119；雅1:25；来4:12）。  
+
 7.成圣的生活：荣耀神（林前10:31；西3:17；太5:16），讨主喜悦（林后5:9；西1:10；帖前2:4,4:1）  
+
 8.在成圣的过程中，我们的责任在于：靠主恩典，遵行主的诫命（约一2:29,5:3,1:8-10）。我们是主的工作，预备叫我们行善；主在我们里面动了善工，必成全这工；主在我们里面作工，我们在外面作工（弗2:10；腓1:6，2:12-13；来13:21；林前15:10）  
+
 9.请背诵腓立比书2:13，分享你的学习心得。  
 
 
 ### 36问：在今生与“称义、得儿女名分、成圣”相伴而来、随之而来的恩福，有哪些？
-
 What are the benefits which in this life do accompany or flowfrom                     justification,adoption,and sanctification?  
+
 **答：** 在今生与“称义、得儿女名分、成圣”相伴而来、随之而来的恩福，就是`确信神的爱、良心的平安、在圣灵中喜乐、在恩典中长进、蒙保守恒忍到底`。  
 The benefits which in this life do accompany or flow from justification,adoption,and sanctification,are,assurance of God’s love,peace of conscience,joy in the Holy Ghost,increase of grace,and perseverance therein to the end.  
 
@@ -117,11 +140,17 @@ The benefits which in this life do accompany or flow from justification,adoption
 
 **问题讨论：**  
 1.“称﹍﹍，得﹍﹍名分，成﹍﹍”是我们在主基督里得救的主要恩福，其他的恩福（例如确据，平安，喜乐等）都是附属于此三项“基要恩福”，伴随而来的。  
+
 2.如果我们不清楚这些基要的救恩真理，或不殷勤操练敬虔亲近神，那么就不能享受与之密切关连的其他恩福。例如“得救的﹍﹍”（确信自己蒙神恩召拣选），不一定是每一信徒每时每刻都感受到恩福（彼后1:3-10；来6:11）。  
+
 3.遵行主话，殷勤忠心的信徒，必经历“﹍﹍，力上加力”的加倍恩福（林后1:12；提后1:3）；偏行己路，冷淡退后的信徒，必然会暂时失去确据或平安或喜乐等恩福。（诗51:8-12）  
+
 4.“信徒永蒙保守到底”是指主耶稣藉着圣灵在我们心中不断运行，保守真正重生的信徒，使在我们身上已开始的救恩大工，持续进行至最终完全实现。因他的大能保守，我们才能坚忍到底。  
+
 5.“信徒蒙神保守到底”的圣经根据有哪些？（约10:28-29；罗11:29；腓1:6；帖后3:3；提后1:12,4:18）  
+
 6.“永蒙保守”是因由何在？（来3:14；6:11；10:22；彼后1:10）其确据从何而来？（约6:37-40,10:28-29,17:2,6,9,24）与“主耶稣为我们代祷”的关系为何？（罗8:34；来7:25）  
+
 7.请背诵“来7:25”分享今日的学习心得。  
 
 

@@ -15,11 +15,11 @@ The sacraments become means of salvation,not from any virtue in themselves,or in
 ### 92问：圣礼是什么？
 What is a sacrament?  
 
-**答：** 圣礼是基督所设立的神圣`礼仪`，在其中可以感受到具体的记号，将基督和新约的恩福，`表明`、`印证`、`实施`在信徒身上。  
+**答：** 圣礼是基督所设立的神圣`礼仪`，在其中可以感受到`具体的记号`，将基督和新约的恩福，`表明`、`印证`、`实施`在信徒身上。  
 A sacraments is an holy ordinance instituted by Christ,wherein,by sensible signs,Christ,and the benefits of the new covenant,are represented,sealed,and applied to believers.  
 
 **注解：** 这里教导我们，圣礼的标记是：  
-（1）`基督`所指定的；（2）以外在记号来教导福音。  
+（1）`基督`所指定的；（2）以`外在记号`来教导福音。  
 圣礼的用处有三：  
 （1）`表彰`福音给我们，清楚教导我们福音；  
 （2）`印证`福音给我们，坚定我们的信心；  

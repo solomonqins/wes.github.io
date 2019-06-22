@@ -4,7 +4,7 @@ What is prayer?
 **答：** 祷告是奉耶稣的名，承认`我们的众罪`，感谢`神诸般的怜悯`，来向神献上我们的心愿，并祈求`合乎神旨意`的事。  
 Prayer is an offering up of our desires unto God for things agreeable to his will,in the name of Christ,with confession of our sins,and thankful acknowledgement of his mercies.  
 
-**注解：** 祷告的意思是“求告神”。这里告诉我们有关“祷告”的三件事：  
+**注解：** 祷告的意思是“`求告`神”。这里告诉我们有关“祷告”的三件事：  
 （1）`形式上`，应当奉基督的名向神祷告；  
 （2）`内容上`，应当是合乎神旨意的事；  
 （3）`态度上`，应当谦卑承认我们的罪，并感谢他的怜悯。  

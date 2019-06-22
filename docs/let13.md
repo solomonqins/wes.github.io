@@ -22,7 +22,8 @@ The souls of believers are at their death made perfect in holines,and do immedia
 
 2.我们在今生结束之后，所得的恩福有两方面：  
 （1）灵魂完全成圣，进入天家与主同在；  
-（2）身体安歇在坟墓中，等候末日复活。在“我们离开世界后”与“基督再来时”之间，基督徒所处之状态，称为“居间之境intermediate state”。  
+（2）身体安歇在坟墓中，等候末日复活。  
+在“我们离开世界后”与“基督再来时”之间，基督徒所处之状态，称为“居间之境intermediate state”。  
 
 3.何谓“死亡”为何人会死？（罗3:23,5:12；弗2:1，创2:17）  
 

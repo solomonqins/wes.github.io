@@ -278,7 +278,7 @@ In the sixth petition,"which is,And lead us not into temptation,but deliver us f
 ### 107问：“主祷文”的结语，教导我们什么？
 What does the conclusion of the Lord’s prayer teach us?  
 
-**答：** 主祷文的结语“因为国度、权柄、荣耀，全是你的，直到永远，阿们！”教导我们：唯独从神得着激励来祷告，并且在祷告中`赞美他`，将国度、权柄、荣耀都归于他。最后，我们说“阿们”，是要见证我们的`心愿`，并确信我们的祷告蒙垂听。  
+**答：** 主祷文的结语“因为国度、权柄、荣耀，全是你的，直到永远，阿们！”教导我们：唯独从神得着激励来祷告，并且在祷告中`赞美他`，将国度、权柄、荣耀都归于他。最后，我们说“阿们”，是要见证我们的`心愿`，并`确信`我们的祷告蒙垂听。  
 The conclusion of the Lord’s prayer,"which is ,"For yours is the kingdom,and the power,and the glory,Amen."teaches us,to take our encouragement in prayer from God only,and in our prayers to praise him,ascribing kingdom,power,and glory to him.and,in testimony of our desire,and assurance to be heard,we say,Amen.  
 
 **注解：** “结语”是指总结。主祷文的“结语”教导我们三件事：  

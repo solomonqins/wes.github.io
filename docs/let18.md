@@ -38,7 +38,7 @@ The fourth commandment requires the keeping holy to God such set times as he has
 ### 59问：神指定七日的哪一日，为每周的安息日？
 Whic day of the seven has God appointed to be the weekly Sabbath?  
 
-**答：** 从世界起始至基督复活，神指定一周的`第七日`，为每周的安息日；从基督复活起至世界的末了，则是七日的第一日，就是基督徒的安息日。  
+**答：** 从世界起始至基督复活，神指定一周的`第七日`，为每周的安息日；从基督复活起至世界的末了，则是七日的`第一日`，就是基督徒的安息日。  
 From the beginning  of the world to the resurrection of Christ,God appointed the seventh day of the week to be the weekly Sabbath;and the first day of the week ever since,to the end of the world,which is the Christian Sabbath.  
 
 **注解：** 先祖与以色列人的安息日在`星期六`，因为在这一天，神歇了他一切创造的工。基督徒的安息日则在`礼拜天`，因为这一天是我们救主从死里复活的日子。这改变乃是根据圣徒与早期教会所实行的。
@@ -95,7 +95,12 @@ What is forbidden in the fourth commandment?
 **答：** 第四诫命禁止我们：`忽略`或`不留心`守安息所当尽的本分，`闲懒`或作`犯罪`的事，或以不必要的思想、言语、行为，从事我们`世俗`的工作及娱乐，以致亵渎了此日。  
 The fourth commandment forbids the omission or careless performance of the duties required,and the profaning the day by idleness,or doing that which is in itself sinful,or by unnecessary thoughts,words,or works,about our worldly employments and recreations.  
 
-**注解：** 此诫命禁止我们：（1）忽略安息日的本分；（2）对这本分敷衍了事；（3）怠惰懒散；（4）犯罪作恶；（5）在无正当理由下参与世务。  
+**注解：** 此诫命禁止我们：  
+（1）忽略安息日的本分；  
+（2）对这本分敷衍了事；  
+（3）怠惰懒散；  
+（4）犯罪作恶；  
+（5）在无正当理由下参与世务。    
 
 **经文：**  
 1.你若在安息日掉转你的脚步，在我圣日不以操作为喜乐，称安息日为可喜乐的，称耶和华的圣日是可尊重的；而且尊敬这日，不办自己的私事，不随自己的私意，不说自己的私话......。（赛58:13-14）  

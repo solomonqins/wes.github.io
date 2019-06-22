@@ -1,7 +1,7 @@
 ### 89问：圣道怎样产生果效，使人得救？
 How is the Word made effectual to salvation?  
 
-**答：** 神的灵藉着`阅读`圣经，特别是`传讲`圣道，作为有效的媒介，使罪人认罪回转；并在圣洁与安慰中`被建造`，使他们藉着相信以致得救。  
+**答：** 神的灵藉着`阅读`圣经，特别是`传讲`圣道，作为有效的媒介，使罪人`认罪回转`；并在圣洁与安慰中`被建造`，使他们藉着相信以致得救。  
 The spirit of God makes the reading,but especially the preaching of the Word,an effectual means of convincing and converting sinners,and of building them up in holiness and comfort,through faith,unto salvation.  
 
 **注解：** 圣经使我们有得救的智慧；为要达到此目的，有两件事是必须的：  
@@ -19,7 +19,7 @@ The spirit of God makes the reading,but especially the preaching of the Word,an 
 ### 90问：圣道该如何阅读与聆听，才会产生果效，使人得救？
 How is the Word to be read and heard,that it may be come effectual to salvation?  
 
-**答：** 为了使圣道产生得救的果效，我们必须以`殷勤`、`预备`、`祷告`的心来学习；以`信心`和`爱心`来领受，存记在我们`心中`，实行在日常生活里。  
+**答：** 为了使圣道产生得救的果效，我们必须以`殷勤`、`预备`、`祷告`的心来学习；以`信心`和`爱心`来领受，存记在我们`心中`，实行在日常`生活`里。  
 That the Word may be come effectual to salvation,we must attend thereunto with diligence,preparation,and prayer;receive it with faith and love,lay it up in our hearts,and practise it in our lives.  
 
 **注解：** 这里教导我们正确使用圣经的方法。我们必须以谨慎、恭敬、祷告的心，来使用圣经。我们必须相信圣经所告诉我们的，遵行圣经所吩咐我们的。并且我们必须以爱真理的心，来领受真理。否则，我们所读的圣道，不会造就我们的灵命，使我们得益。  

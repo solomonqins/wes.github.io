@@ -1,5 +1,5 @@
 
-[![cover](../images/banner.jpg)](../images/banner.jpg)
+[![cover](https://github.com/solomonqins/wes.github.io/blob/master/images/banner.jpg)](https://github.com/solomonqins/wes.github.io/blob/master/images/banner.jpg)
 
 ###【作者序】
 

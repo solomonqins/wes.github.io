@@ -1,7 +1,7 @@
 ### 7问：神的旨意是什么？
 What are the decrees of God?  
 
-**答：** 神的旨意，就是祂永恒里的目的，根据祂计划的美意；藉此，祂为自己的荣耀，预定了一切将要发生的事。  
+**答：** 神的旨意，就是`祂永恒里的目的`，根据祂计划的美意；藉此，祂为自己的荣耀，`预定了`一切将要发生的事。  
 The  decrees of God are his eternal purpose,according to the counsel of his will,whereby,for his own glory,he has fore-ordained whatsoever comes to pass.  
 
 **注解：** 神的`旨意`就是祂的目的，即`祂在永恒里已经定下所要作的事`。这个答案告诉我们：神定规每一件要发生的事。任何事的发生，都不是出于偶然，而是经过计划安排，这计划乃是神的计划。祂使万事互相效力，叫爱神的人得益处，叫恨祂的人自食恶果。

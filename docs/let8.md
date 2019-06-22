@@ -53,7 +53,7 @@ Wherein consists the sinfulness of that estate whereinto man fell?
 **答：** 人堕落的状态中，其罪恶有：一、亚当初犯的`罪咎`、原有仁义的`丧失`、人性全面的败坏（通常称为“原罪”），二、人从罪性所发出的一切`过犯`。  
 The sinfulness of that estate whereinto man fell,consists in the guilt of Adam’s firstsin,the want of original righteousness,and the corruption of his whole nature,which is commonly called Original Sin,together with all actual transgressions which proceeds from it.
 
-**注解：** 亚当的堕落，使我们堕落至罪恶的状态中，此罪恶的范围包括两部分：我们本性的罪，与我们生活中的罪。本性的罪称为“原罪”，包括三件事：承受亚当犯罪的罪责与罪罚，缺乏行义的意愿、偏好行恶的倾向。生活中的罪，称为“本罪”，包括我们一切所行的罪。“原罪”是直接来自我们与亚当的关连；“本罪”则是直接来自我们的恶心，我们的心原是因与亚当的关连而成为邪恶。追根究底，一切的罪还是源自起初的罪。
+**注解：** 亚当的堕落，使我们堕落至罪恶的状态中，此罪恶的范围包括两部分：我们本性的罪，与我们生活中的罪。`本性的罪`称为“原罪”，包括三件事：承受亚当犯罪的罪责与罪罚，缺乏行义的意愿、偏好行恶的倾向。`生活中的罪`，称为“本罪”，包括我们一切所行的罪。“原罪”是直接来自我们与亚当的关连；“本罪”则是直接来自我们的恶心，我们的心原是因与亚当的关连而成为邪恶。追根究底，一切的罪还是源自起初的罪。
 
 **经文：**  
 1.我是在罪孽里生的，在我母亲怀胎的时候，就有了罪。（诗51:5）  

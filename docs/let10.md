@@ -164,7 +164,16 @@ Wherein did Christ’s  humiliation consist?
 **答：** 基督的降卑在于：`降生为人`，`卑微地`生在`律法之下`，忍受`今世的苦难`、`神的震怒`和被诅咒死于十架，又被埋葬，暂时`服在死权之下`。  
 Christ’s humiliation consisted in his being born,and that in a low condition,made under the law,undergoing the miseries of this life,the wrath of God,and the cursed death of the cross;in being buried,and continuing the power of death for a time.  
 
-**注解：** “降卑”就是由高位降到低位，基督为我们降卑。祂从天上宝座下来，成为忧患受苦的人。这里告诉我们，基督的降卑包括下列几个方面：（1）出生；（2）出身卑微；（3）服在律法之下；（4）常经忧患；（5）历经神的掩面不看；（6）被钉十架；（7）被埋葬；（3）三日在坟墓里。这一切，基督都担当了，是为我们的缘故。  
+**注解：** “降卑”就是由高位降到低位，基督为我们降卑。祂从天上宝座下来，成为忧患受苦的人。这里告诉我们，基督的降卑包括下列几个方面：  
+（1）出生；  
+（2）出身卑微；  
+（3）服在律法之下；  
+（4）常经忧患；  
+（5）历经神的掩面不看；  
+（6）被钉十架；  
+（7）被埋葬；  
+（8）三日在坟墓里。  
+这一切，基督都担当了，是为我们的缘故。  
 
 **经文：**  
 1.祂被藐视，被人厌弃，多受痛苦，常经忧患。（赛53:3）  
@@ -199,7 +208,12 @@ Wherein consists Christ’s exaltation?
 **答：** 基督的升高在于：祂第三日`从死里复活，升天，坐在父神的右边`，并在末日来`审判世界`。  
 Christ’s  exaltation consists in his rising again from the dead on the third day,in ascending up into heaven,in sitting at the right hand of God the Father,and  in coming to judge the world at the last day.  
 
-**注解：** `“升高”`就是由卑微升至尊贵。基督的升高包括下列几方面：（1）由死里复活；（2）升上高天；（3）坐在神的右边；（4）受任审判世界。这是我们救主现今的况态。
+**注解：** `“升高”`就是由卑微升至尊贵。基督的升高包括下列几方面：  
+（1）由死里复活；  
+（2）升上高天；  
+（3）坐在神的右边；  
+（4）受任审判世界。  
+这是我们救主现今的况态。
 
 **经文：**  
 1.当人子在他荣耀里，同着众天使降临的时候，要坐在他荣耀的宝座上。（太25:31）  

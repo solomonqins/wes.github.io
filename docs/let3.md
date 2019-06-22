@@ -1,8 +1,8 @@
 ### 4问：神是怎样的神？
 What is God?  
 
-**答：** 神是灵。祂的本体、智慧、权能、圣洁、公义、良善、真实，都是无限无量、无始无终、
-永不改变的。  
+**答：** 神是灵。祂的本体、智慧、权能、圣洁、公义、良善、真实，都是`无限无量`、`无始无终`、
+`永不改变`的。  
 God is spirit,infinite,eternal,and unchangeable in his being,wisdom,power,holy,justice,goodness,and truth.
 
 **注解：** 这里告诉我们：  
@@ -53,7 +53,7 @@ God is spirit,infinite,eternal,and unchangeable in his being,wisdom,power,holy,j
 ### 5问：神是独一的吗？
 Are there more Gods than one?  
 
-**答：** 神是独一无二的、又真又活的。  
+**答：** 神是`独一无二`的、又真又活的。  
 There is but one only,the living and true God.
 
 **注解：** 这里教导我们：只有`一位`神。
@@ -71,7 +71,7 @@ How many persons are there in the Godhead?
 **答：** 神有三位格：`圣父、圣子、圣灵`；这三位格就是同一真神，同本质，同权能，同荣耀。  
 There are three persons in the Godhead;the Father,the Son,and the Holy Ghost;and these three are one God,the same in substance,equal in power and glory.
 
-**注解：** 圣经告诉我们，圣父是神，圣子是神，圣灵是神，这三位格就是独一真神；同一存在，同一行动，
+**注解：** 圣经告诉我们，圣父是神，圣子是神，圣灵是神，这三位格就是`独一`真神；同一存在，同一行动，
 同享荣耀，同受敬拜。唯有藉着圣经的启示，我们才能得此真理。
 
 **经文：**   

@@ -25,7 +25,7 @@ The fifth commandment requires the preserving the honour,and performing the duti
 ### 65问：第五诫命禁止我们作什么？
 What is forbidden in the fifth commandment?  
 
-**答：** 第五诫命禁止我们：忽视或侵犯各人在其地位与关系中的名誉与职责。  
+**答：** 第五诫命禁止我们：`忽视`或`侵犯`各人在其地位与关系中的名誉与职责。  
 The fifth commandment forbids the neglecting of,or doing anything against,the honour and duty which belongs to every one in their several places and relations.  
 
 **经文：**  

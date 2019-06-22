@@ -16,7 +16,11 @@ What is required in the first commandment?
 **答：** 第一诫命吩咐我们`认识神`，并且`承认`他是独一的`真神`，是`我们`的神，因此我们当`敬拜`他、`荣耀`他。  
 The first commandment requires us to know and acknowledge God to be the only God,and our God;and to worship and glorify him accordingly.  
 
-**注解：** 第一诫命吩咐我们：（1）认识真神，并只认他为我们的神；（2）如此在众人面前公开承认他；（3）敬拜他；（4）荣耀他。
+**注解：** 第一诫命吩咐我们：  
+（1）认识真神，并只认他为我们的神；  
+（2）如此在众人面前公开承认他；  
+（3）敬拜他；  
+（4）荣耀他。
 
 **经文：**  
 1.你今日认耶和华为你的神，应许遵行他的道，谨守他的律例、诫命、典章，听从他的话。（申26:17）  

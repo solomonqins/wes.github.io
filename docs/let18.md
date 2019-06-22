@@ -35,6 +35,5 @@ The fourth commandment requires the keeping holy to God such set times as he has
 6.请查考“以赛亚书56:1-8”，背诵“赛56:2”，并分享你的学习心得。  
 
 
-
 ### 59问：神指定七日的哪一日，为每周的安息日？
 

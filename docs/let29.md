@@ -1,7 +1,7 @@
 ### 94问：洗礼是什么？
 What is baptism?  
 
-**答：** 洗礼是圣礼，在其中奉父、子、圣灵的名，`以水施洗`，确实表明且印证我们`与基督连结`，领受恩约的福气，并且我们归属于主。  
+**答：** 洗礼是圣礼，在其中奉父、子、圣灵的名，`以水施洗`，确实表明且印证我们`与基督连结`，`领受恩约`的福气，并且我们归属于主。  
 Baptism is a sacrament,wherein the washing with water in the name of the Father,and of the Son,and of the Holy Ghost,does signify and seal our ingrafting into Christ,and partaking of the benefit of the covenant of grace,and  our engagement to be the Lord’s.  
 
 **注解：** 洗礼的`外在行动`，是奉父、子、圣灵的名以水施洗；其`内在意义`则是，我们的罪被除去。按本性，我们全都生在罪里，在被许可进天国之前，我们需要`重生`。洗礼正表明着此新生。洗礼所用的水盆告诉我们，`另有一泉源`，是满有耶稣基督的宝血；这宝血之源已经打开，白白洗净一切罪恶与不洁。  

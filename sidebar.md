@@ -1,4 +1,4 @@
-# [西敏小要理问答]()
+# [威斯敏斯特小要理问答]()
 
 作者：[Berlin](https://github.com/solomonqins)
 

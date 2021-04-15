@@ -1,6 +1,6 @@
 # [西敏小要理问答]()
 
-作者：[覃许](https://github.com/solomonqins)
+作者：[Berlin](https://github.com/solomonqins)
 
 署名：非商业性用途
 

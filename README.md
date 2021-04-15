@@ -19,4 +19,4 @@
 奉献支持-维护线上应用或开发新应用(奉献时请备注"奉献")
 [![cover](images/qr.jpg)](images/qr.jpg)
 
-有疑问请联系:solomonqins@outlook.com
+如有疑问请联系:solomonqins@outlook.com

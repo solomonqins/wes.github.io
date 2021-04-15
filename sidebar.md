@@ -1,6 +1,6 @@
 # [威斯敏斯特小要理问答]()
 
-作者：[覃许弟兄](https://github.com/solomonqins)
+作者：[覃弟兄](https://github.com/solomonqins)
 
 署名：非商业性用途
 

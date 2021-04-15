@@ -17,6 +17,6 @@
 本网站用于非商业性用途
 
 奉献支持
-[![cover](images/mqr.jpg)](images/mqr.jpg)
+[![cover](images/qr.jpg)](images/qr.jpg)
 
 有疑问请联系:solomonqins@outlook.com

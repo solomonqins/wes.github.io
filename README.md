@@ -16,7 +16,4 @@
 
 本网站用于非商业性用途
 
-奉献支持-维护线上应用或开发新应用(奉献时请备注"奉献")
-[![cover](images/qr.jpg)](images/qr.jpg)
-
 如有疑问请联系:solomonqins@outlook.com
